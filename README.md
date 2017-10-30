@@ -1,6 +1,7 @@
 # Survivor's Logs:
 
 > --edit--
+YE BIK GYI YE GAURMINT!!
 
 ## Author:
 
